@@ -8,7 +8,3 @@
 #### 玉池荷叶正田田。
 
 ###### from your Valentines 20190807
-
-
-
-# https://chenguiqin.github.io
