@@ -1,3 +1,6 @@
+![WechatIMG10](./WechatIMG11.jpeg)
+
+
 
 # 陈魏 二 字   
 
@@ -35,6 +38,12 @@
 - 是你让我觉得生活奋斗的目标 、意义在哪里 
 
 
+
+
+
+
+
+![WechatIMG10](./WechatIMG12.jpeg)
 
 # 闯入你的生活 是三生有幸 ；
 
@@ -91,7 +100,7 @@
 
   
 
-  
+  ![WechatIMG10](./WechatIMG13.jpeg)
 
 # 答应你的代班事项（todo）
 
